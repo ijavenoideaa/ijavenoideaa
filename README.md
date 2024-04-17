@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ijavenoideaa
+- 👀 I’m interested in Computer Science
+- 🌱 I’m currently learning how to code
+- 📫 How to reach me (actually I'm self taught so i really wanna reach out to mentors and experienced coders out there): my linkedin https://www.linkedin.com/in/candace-anh/
+- 😄 Pronouns: She/her
+- ⚡ Fun fact: I don't think it's funny but I live in Japan without saying a Japanese word
